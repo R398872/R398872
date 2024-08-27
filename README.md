@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @R398872
+- 👀 I’m interested in application coding
+- 🌱 I’m currently learning java
+- 😄 Pronouns: She/He
+- ⚡ Fun fact: idk
