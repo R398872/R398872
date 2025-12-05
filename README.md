@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @R398872
 - 👀 I’m interested in application coding
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning cyber security
 - 😄 Pronouns: Any
 - ⚡ Fun fact: I draw
